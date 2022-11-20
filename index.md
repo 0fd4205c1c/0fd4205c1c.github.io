@@ -19,11 +19,15 @@ Comment on this
 ----
 Comment on this
 
-## 4. F1nn5ter has succed dick before
+## 3. They see each other regularly
 
+## 4. F1nn5ter has succed dick before
 
 
 ## 4. F1nn5ter is a bottom, Riza is a top
 
 
 ## 4. F1nn5ter has been fucked by Meoriza
+
+
+## 4. F1nn5ter and Meoriza act like they are single
