@@ -1,0 +1,14 @@
+title: Why F1nn5ter and Meowriza are a couple
+description: Last updated on 20-11-2022
+remote_theme: pages-themes/hacker@v0.2.0
+show_downloads: false
+is_project_page: false
+plugins:
+- jekyll-remote-theme
+relative_links:
+  enabled: true
+  collections: true
+include:
+  - index.md
+  - x.md
+
