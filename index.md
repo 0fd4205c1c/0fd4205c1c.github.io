@@ -8,18 +8,24 @@
 *Comment on this*
 
 - **They share a bed at F1nn5ter's house whenever Meowrizas comes over.**
-  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^note] and usually filled with stuff. 
+  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^A] and usually filled with stuff. 
 
-  - Meowriza has an own room in F1n5ters house, fully equipped with a desk and but it doesn't have a bed.[^note] 
+  - Meowriza has an own room in F1n5ters house, fully equipped with a desk and but it doesn't have a bed.[^B] 
   
   - F1nn5ter has said that she sleeps upstairs. The only bedroom upstairs is his.  
     >*"aaaaaaaaaaaa"* 
  
   - F1nn5ter's bedroom has only one bed. The bed is still the same as in the stream where he painted his bedroom, this was visible in multiple instagram stories. There is no other bed in the house.
 
+
 - **They share a bed whenever they visit other countries.**
-  - They shared a bed at the spain vaction in May.
-  - They shared a bed at the visit to London in January when thes stayed at the shard hotel.
+
+  - They shared a bed at the visit to London in July 2021 when they stayed at the shard hotel[^A1].
+
+  - They shared a bed at the spain vaction in October 2021[^A2].
+
+  - They shared a bed at their stay at Tropical Island Resort in Berlin[^A4].
+
 
 
 
@@ -31,15 +37,17 @@
 ----
 *While kisses on the cheek could still be considered platonic, kissing on the mouth is a pretty obvious indicator.*
 - **They have kissed on the cheek multiple times.**
-  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^1] and usually filled with stuff.  
+  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^C] and usually filled with stuff.  
   
   - F1nn5ter has said that she sleeps upstairs. The only bedroom upstairs is his. 
 
 - **They admitted to have kissed on the mouth.**
-  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^1] and usually filled with stuff.  
+  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^D] and usually filled with stuff.  
 
 - **They admitted to have kissed on the mouth.**
-  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^1] and usually filled with stuff.
+  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^E] and usually filled with stuff.
+
+
 <br />
 <br />
 
@@ -69,5 +77,8 @@ Comment on this
 ## 4. F1nn5ter and Meoriza act like they are single
 
 
-[^1]: asa
+[^A1]: This can be seen in [F1nn5ter's Insta Story](https://imgur.com/a/PkPJYBd) from 29 July 2021 and was also discussed in [this reddit post](https://www.reddit.com/r/F1NN5TER/comments/ogzizt/more_insta_stories_rose_and_riza_at_the_shard/)
 
+[^A2]: Visible in [this Screenshot](https://imgur.com/a/D58lctz) from [this stream](https://www.youtube.com/watch?v=UaB2RNsv8Tw) on 7 October 2021, it was also discussed [on reddit](https://www.reddit.com/r/F1NN5TER/comments/q3dss2/one_bed_only_rose_is_kinda_sus/).
+
+[^A3]:
