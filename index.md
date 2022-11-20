@@ -5,19 +5,34 @@
 
 ## 1. They sleep in the same bed
 ----
-Comment on this
+*Comment on this*
+
+- They share a bed at F1nn5ter's house whenever Meowrizas comes over.
+  - x
+    - x
+- They share a bed whenever they visit other countries.
+
+
+<br />
+<br />
 
 ## 2. They kiss each other 
 ----
 Comment on this
+<br />
+<br />
 
 ## 3. They hold hands
 ----
 Comment on this
+<br />
+<br />
 
 ## 3. They see each other regularly
 ----
 Comment on this
+<br />
+<br />
 
 ## 3. They see each other regularly
 
