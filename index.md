@@ -8,10 +8,14 @@
 
 - **They share a bed at F1nn5ter's house whenever Meowrizas comes over.**
   - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^1] and usually filled with stuff.  
+  
   - F1nn5ter has implied that she sleeps upstairs. The only bed upstairs is his.  
  >*"aaaaaaaaaaaa"* 
+ 
   - Meowriza has an own room in F1n5ters house, fully equipped with a  but it doesn't have a bed.  
+ 
   - F1nn5ter has implied, that    
+ 
   - x
     - x  
 - **They share a bed whenever they visit other countries.**
