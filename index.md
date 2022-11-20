@@ -8,17 +8,15 @@
 *Comment on this*
 
 - **They share a bed at F1nn5ter's house whenever Meowrizas comes over.**
-  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^1] and usually filled with stuff.  
+  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^n] and usually filled with stuff. 
+
+  - Meowriza has an own room in F1n5ters house, fully equipped with a desk and but it doesn't have a bed.[^n] 
   
-  - F1nn5ter has implied that she sleeps upstairs. The only bed upstairs is his.  
- >*"aaaaaaaaaaaa"* 
+  - F1nn5ter has said that she sleeps upstairs. The only bedroom upstairs is his.  
+    >*"aaaaaaaaaaaa"* 
  
-  - Meowriza has an own room in F1n5ters house, fully equipped with a  but it doesn't have a bed.  
- 
-  - F1nn5ter has implied, that    
- 
-  - x
-    - x  
+  - F1nn5ter's bedroom has only one bed. The bed is still the same as in the stream where he painted his bedroom, this was visible in multiple instagram stories. There is no other bed in the house.
+
 - **They share a bed whenever they visit other countries.**
   - They shared a bed at the spain vaction in May.
   - They shared a bed at the visit to London in January when thes stayed at the shard hotel.
@@ -31,7 +29,18 @@
 
 ## 2. They kiss each other 
 ----
-Comment on this
+*While kisses on the cheek could still be considered platonic, kissing on the mouth is a pretty obvious indicator.*
+- **They have kissed on the cheek multiple times.**
+  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^1] and usually filled with stuff.  
+  
+  - F1nn5ter has said that she sleeps upstairs. The only bedroom upstairs is his. 
+
+- **They admitted to have kissed on the mouth.**
+  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^1] and usually filled with stuff.  
+
+- **They admitted to have kissed on the mouth.**
+  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^1] and usually filled with stuff.
+ 
 <br />
 <br />
 
