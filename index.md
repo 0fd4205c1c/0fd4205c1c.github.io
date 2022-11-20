@@ -3,9 +3,6 @@
 </div>
 <br/>
 
-```
-sssssssssssssssssssssssssssss aaaaaaaaaaaaaaaaaaaaaaaaaaaaaas ssssssssssssssssssssss aaaaaaaaaaaaaaaaaaaaassssssssssss aaaaaaaaaaaaaaaa
-```
 ## 1. They sleep in the same bed
 ----
 Comment on this
