@@ -8,9 +8,9 @@
 *Comment on this*
 
 - **They share a bed at F1nn5ter's house whenever Meowrizas comes over.**
-  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^n] and usually filled with stuff. 
+  - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^note] and usually filled with stuff. 
 
-  - Meowriza has an own room in F1n5ters house, fully equipped with a desk and but it doesn't have a bed.[^n] 
+  - Meowriza has an own room in F1n5ters house, fully equipped with a desk and but it doesn't have a bed.[^note] 
   
   - F1nn5ter has said that she sleeps upstairs. The only bedroom upstairs is his.  
     >*"aaaaaaaaaaaa"* 
@@ -40,7 +40,6 @@
 
 - **They admitted to have kissed on the mouth.**
   - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^1] and usually filled with stuff.
- 
 <br />
 <br />
 
