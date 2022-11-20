@@ -2,20 +2,22 @@
 <i style="font-size: 16px; word-wrap: break-word; overflow: auto; overflow-y: auto; overflow-y: hidden; color: #d0d0d0; font-size: 16px; line-height: 1.5; font-family: Monaco, Bitstream Vera Sans Mono, Lucida Console, Terminal, monospace;">This list has been written to prevent long discussions about F1nn5ters relationship status with newbies to his streams on twitter, reddit or other plaforms</i>    
 </div>
 <br/>
-
 ## 1. They sleep in the same bed
 ----
 *Comment on this*
 
-- They share a bed at F1nn5ter's house whenever Meowrizas comes over. 
+- **They share a bed at F1nn5ter's house whenever Meowrizas comes over.**
   - There is a couch downstairs, but it is not used by Meowriza. It is too small for her [^1] and usually filled with stuff.  
   - F1nn5ter has implied that she sleeps upstairs. The only bed upstairs is his.  
-    >**"aaaaaaaaaaaa"** 
-  - Meowriza has an own room in F1n5ters house, but it doesn't have a bed.  
+ >*"aaaaaaaaaaaa"* 
+  - Meowriza has an own room in F1n5ters house, fully equipped with a  but it doesn't have a bed.  
   - F1nn5ter has implied, that    
   - x
     - x  
-- They share a bed whenever they visit other countries.
+- **They share a bed whenever they visit other countries.**
+  - They shared a bed at the spain vaction in May.
+  - They shared a bed at the visit to London in January when thes stayed at the shard hotel.
+
 
 
 <br />
