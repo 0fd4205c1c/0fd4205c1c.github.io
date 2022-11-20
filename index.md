@@ -2,7 +2,7 @@
 <i>No language indicated, so no syntax highlighting.* *Comment on this*</i>
 ```
 
-<i style="background: rgba(0,0,0,0.9); border: 1px solid rgba(255,255,255,0.15); padding: 10px; font-size: 16px; color: #b5e853; border-radius: 2px; word-wrap: normal; overflow: auto; overflow-y: auto; overflow-y: hidden;">No language indicated, so no syntax highlighting.* *Comment on this*</i>
+<i style="background: rgba(0,0,0,0.9); border: 1px solid rgba(255,255,255,0.15); padding: 10px; font-size: 16px; border-radius: 2px; word-wrap: normal; overflow: auto; overflow-y: auto; overflow-y: hidden; color: #d0d0d0; font-size: 16px; line-height: 1.5; font-family: Monaco, "Bitstream Vera Sans Mono", "Lucida Console", Terminal, monospace;">No language indicated, so no syntax highlighting.* *Comment on this*</i>
 
 ## 1. They sleep in the same bed
 ----
